@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Goggs77
 - 🌱 I’m currently learning <?>
-- 📫 How to reach me : Discord- Goggs#7869
+- 📫 How to reach me : the801140@outlook.com
 
 <!---
 Goggs77/Goggs77 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
